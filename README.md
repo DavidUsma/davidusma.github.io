@@ -1,1 +1,0 @@
-# davidusma.github.io
